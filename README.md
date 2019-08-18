@@ -42,6 +42,10 @@
 
 破镜重圆/带球跑，2k＋内含自行车
 
+9.[【藕饼/现代paro】药石无灵（1）](http://guangoumingyue.lofter.com/post/1dac7d8e_1c652b259#) 作者：[管勾明月](http://guangoumingyue.lofter.com/)
+
+不良（绝症）少年吒 X 一刀流医生丙，青梅竹马久别重逢旧情复燃，目前已9更 连载中
+
 </br>
 
 ## **二、失忆梗：**
